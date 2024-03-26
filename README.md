@@ -423,3 +423,11 @@ vous trouverez sur cette plateform des cours et examens qui vous accompagnerons 
 ### Learn Languages
 * [Duolingo](https://www.duolingo.com/): The world's best way to learn a language!
 * [Learn a Language](https://www.learnalanguage.com/): Learn a language with hundreds of free lessons
+* <a href="https://www.pricestday.com/">اسعار اليوم </a>
+<a href="https://projects-ideas.pricestday.com/">افكار مشاريع </a>
+<a href="https://profitinternet.pricestday.com/">الربح من الانترنت </a>
+<a href="https://cryptoandtrading.pricestday.com/">عملات مشفرة وتداول</a>
+
+
+
+

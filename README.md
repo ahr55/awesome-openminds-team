@@ -423,3 +423,10 @@ vous trouverez sur cette plateform des cours et examens qui vous accompagnerons 
 ### Learn Languages
 * [Duolingo](https://www.duolingo.com/): The world's best way to learn a language!
 * [Learn a Language](https://www.learnalanguage.com/): Learn a language with hundreds of free lessons
+* 
+
+## Programs for making money from the Internet and working online
+* [Today's prices](https://www.pricestday.com/) economic grid
+* [Project ideas](https://projects-ideas.pricestday.com/) Ideas for successful and profitable projects
+* [Internet profit](https://profitinternet.pricestday.com/) Explanation of ways to profit from the Internet
+
